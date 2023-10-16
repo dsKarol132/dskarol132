@@ -2,7 +2,7 @@
 
 ### Contact:
 
-[Discord](https://discords.com/bio/p/Killerek)
+[Discord](https://discords.com/bio/p/lolek1650)
 
 ---
 
